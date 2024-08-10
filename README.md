@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Henry
 - 📫 How to reach me, you can email me 
 - 😄 Pronouns: his/him
-- ⚡ Fun fact: I am a funy guy
+- ⚡ Fun fact: I am a funny guy
 
 <!---
 Johansilva039/Johansilva039 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
